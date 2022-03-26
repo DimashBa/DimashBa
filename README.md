@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DimashBa
+- 👋 Hi, I’m @DimashBarkenov
 - 👀 I’m interested in ...деньги
 - 🌱 I’m currently learning ...в колледже
 - 💞️ I’m looking to collaborate on .с гуглом
